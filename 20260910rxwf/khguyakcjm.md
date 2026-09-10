@@ -134,22 +134,22 @@ A：微刺激方案针对卵巢功能有问题的患者或者年龄较高的患�
 
 ## 相关阅读
 
-- [相关笔记](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/lotdbmzyyl.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/xbazjxfdvo.md)
-- [相关笔记](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/llsrdkjrmx.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/kwhnxiwenk.md)
-- [相关笔记](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
-- [相关笔记](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/yqwqxhgosg.md)
-- [相关笔记](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/xdngswfavi.md)
-- [相关笔记](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/dgwjuxnxtr.md)
+- [美国第三代试管婴儿终极手册：流程、费用、成功率全解析](https://github.com/sa1ec5y0bz/child-care-essays/blob/main/20260910nwib/lotdbmzyyl.md)
+- [美国第三代试管婴儿完全指南：5步流程＋避坑秘诀，帮你安全赴美生子](https://github.com/sa1ec5y0bz/baby-care-journal/blob/main/20260910mqdw/xbazjxfdvo.md)
+- [美国第三代试管婴儿5大核心流程＋避坑秘籍，助你轻松圆梦](https://github.com/uo8lrun64a/baby-care-journal/blob/main/20260910eavp/llsrdkjrmx.md)
+- [揭秘美国第三代试管婴儿：成功率、费用、全流程一文搞定](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/kwhnxiwenk.md)
+- [赴美做第三代试管婴儿必看：5大避坑秘诀+高成功率解析](https://github.com/uo8lrun64a/family-health-notes/blob/main/20260910biha/rjfdsdwhvu.md)
+- [美国第三代试管婴儿全攻略：5步搞定赴美生娃无忧](https://github.com/sa1ec5y0bz/family-health-notes/blob/main/20260910wvoa/yqwqxhgosg.md)
+- [美国第三代试管婴儿全流程揭秘：6大关键步骤带你无忧赴美生娃](https://github.com/uo8lrun64a/pregnancy-care-hub/blob/main/20260910ilvq/xdngswfavi.md)
+- [揭秘美国第三代试管婴儿全流程避坑指南：6大秘诀助你成功](https://github.com/uo8lrun64a/parenting-daily-tips/blob/main/20260910wiou/dgwjuxnxtr.md)
 
 ## 推荐站点
 
-- [详情点击](https://www.danqiushen.com/163.html)
-- [延伸阅读](https://www.danqiushen.com/82.html)
-- [详情点击](https://www.danqiushen.com/35.html)
-- [延伸阅读](https://www.wuzhenzhi.cn/46.html)
-- [更多内容](https://www.wuzhenzhi.cn/32.html)
-- [更多内容](https://www.wuzhenzhi.cn/21.html)
+- [试管婴儿流程步骤详解_促排取卵移植全过程-悟知试管知识网](https://www.wuzhenzhi.cn/liucheng/)
+- [什么人需要做试管_试管适应症_输卵管梗阻与少弱精-悟知试管知识网](https://www.wuzhenzhi.cn/renqun/)
+- [试管婴儿常见问答_试管FAQ_试管费用成功率在线咨询-悟知试管知识网](https://www.wuzhenzhi.cn/wenda/)
+- [试管婴儿常见误区_试管辟谣_包成功骗局揭秘-悟知试管知识网](https://www.wuzhenzhi.cn/wuqu/)
+- [试管婴儿政策_试管医保报销_三胎与辅助生殖法规-悟知试管知识网](https://www.wuzhenzhi.cn/zhengce/)
+- [南京鼓楼医院供卵等多久——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/10.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
