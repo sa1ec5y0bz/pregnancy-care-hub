@@ -145,11 +145,19 @@ A：微刺激方案针对卵巢功能有问题的患者或者年龄较高的患�
 
 ## 推荐站点
 
-- [试管婴儿流程步骤详解_促排取卵移植全过程-悟知试管知识网](https://www.wuzhenzhi.cn/liucheng/)
-- [什么人需要做试管_试管适应症_输卵管梗阻与少弱精-悟知试管知识网](https://www.wuzhenzhi.cn/renqun/)
-- [试管婴儿常见问答_试管FAQ_试管费用成功率在线咨询-悟知试管知识网](https://www.wuzhenzhi.cn/wenda/)
-- [试管婴儿常见误区_试管辟谣_包成功骗局揭秘-悟知试管知识网](https://www.wuzhenzhi.cn/wuqu/)
-- [试管婴儿政策_试管医保报销_三胎与辅助生殖法规-悟知试管知识网](https://www.wuzhenzhi.cn/zhengce/)
-- [南京鼓楼医院供卵等多久——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/10.html)
+- [['https://www.hg00fj88.com/2258.html', '北京试管婴儿医院治疗注意事项']](https://www.hg00fj88.com/2258.html)
+- [['https://www.fmngst.com/2983248180046.html', '合肥三代试管机构大全_合肥三代试管费用总共多少！']](https://www.fmngst.com/2983248180046.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6276.html', '哪家代孕公司是真的,始基子宫、幼稚子宫、无子宫有区别？幼稚子宫与始基子']](https://www.btwtjx.cn/wuhangongluanshiguanqun/20250608/6276.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/184.html', '代孕供卵费用：乌鲁木齐试管婴儿专家有哪些(乌鲁木齐市妇幼保健医院试管医生有哪些)']](https://www.ppmaas.com/guoneishiguanjigou/184.html)
+- [['https://www.cxit.com.cn/daiyunxinwen/14208.html', '高龄试管供卵_做供卵试管助孕,全国试管婴儿最好的医院,试管婴儿哪里好']](https://www.cxit.com.cn/daiyunxinwen/14208.html)
+- [['https://www.hghbjm.com/55.html', '南昌第三代试管婴儿多少钱呢？']](https://www.hghbjm.com/55.html)
+- [['https://www.dygsdyw.com/120680529190.html', '供卵价格高:子宫后位怀孕都是男孩多吗？']](https://www.dygsdyw.com/120680529190.html)
+- [['https://www.bjwdzxkj.cn/1803791452980.html', '为何乐山私立医院代生双胞胎网成功率会比公立医院高']](https://www.bjwdzxkj.cn/1803791452980.html)
+- [['https://www.ewdboe.cn/305692240047.html', '2026年柬埔寨三代试管助孕医院排名：优选辅助生殖机构与代生费用解析']](https://www.ewdboe.cn/305692240047.html)
+- [['https://www.dyokx.com/hangzhoudaihuaishiguan/358.html', '不结婚，没结婚证能做试管婴儿吗？']](https://www.dyokx.com/hangzhoudaihuaishiguan/358.html)
+- [['https://www.sgdaiyun.com/128685334038.html', '供卵代孕机构：胚胎等级怎么划分？试管胚胎等级？']](https://www.sgdaiyun.com/128685334038.html)
+- [['https://www.sandwnot.com/110551335237.html', None]](https://www.sandwnot.com/110551335237.html)
+- [['https://www.phetpalace.com/214.html', '做冻胚移植前吃什么']](https://www.phetpalace.com/214.html)
+- [['https://www.sdwmtgccl.cn/60035634855180.html', '鞍状子宫可做试管吗？辅助生殖技术助您代怀生子，详解代生与供卵代怀方案']](https://www.sdwmtgccl.cn/60035634855180.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
