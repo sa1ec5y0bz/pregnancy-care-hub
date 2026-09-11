@@ -64,13 +64,18 @@
 
 ## 推荐站点
 
-- [三代试管可以解决糖尿病吗？2型糖尿病遗传风险科普解读](https://www.wuzhenzhi.cn/109.html)
-- [衡阳试管婴儿医院——悟知试管知识网专业科普](https://www.wuzhenzhi.cn/11.html)
-- [有做二代试管生男孩的吗？解析二代试管与胎儿性别那些事](https://www.wuzhenzhi.cn/110.html)
-- [国内、泰国、美国第三代试管婴儿怎么选？三代试管目的地全面对比](https://www.wuzhenzhi.cn/111.html)
-- [第三代试管包生儿子有影响吗？解析PGT技术与性别选择真相](https://www.wuzhenzhi.cn/112.html)
-- [临沂能做三代试管吗？最新消息与申请条件全面解读](https://www.wuzhenzhi.cn/113.html)
-- [囊胚性别鉴定要多久出结果？PGT检测流程与时间周期全解析](https://www.wuzhenzhi.cn/114.html)
-- [第二代试管性别比例是多少？ICSI婴儿男女比例科学解读](https://www.wuzhenzhi.cn/115.html)
+- [['https://www.xmxinyhwzhs.cn/22556147700989.html', '兰州借卵试管代生成功率多少钱一次？兰州借卵试管代生成功率多少钱一次正常？']](https://www.xmxinyhwzhs.cn/22556147700989.html)
+- [['https://www.skiguo.cn/20250927-79.html', '助孕试管电话-青岛试管婴儿的具体费用，各项花费清单一览']](https://www.skiguo.cn/20250927-79.html)
+- [['https://www.esc45.com/225.html', '2026沈阳医大二院生殖中心就诊全攻略：从初诊到移植必知指南']](https://www.esc45.com/225.html)
+- [['https://www.anyhdlyb.cn/1429237824744.html', '代生价格是多少自然周期和促排的区别是什么']](https://www.anyhdlyb.cn/1429237824744.html)
+- [['https://www.dygsdyw.com/225211915447.html', '感谢北大妇幼时春艳主任,代孕中心有几家']](https://www.dygsdyw.com/225211915447.html)
+- [['https://www.zrbbavaq.cn/25839725507061.html', '移植鲜胚的优点，选正规代生助孕机构方案别再只看成功率了！']](https://www.zrbbavaq.cn/25839725507061.html)
+- [['https://www.xnnpbhdz.cn/12084433028774.html', 'Le拉拉彡代上岸，成功得到小棉袄啦！,国内代孕网']](https://www.xnnpbhdz.cn/12084433028774.html)
+- [['https://www.fmngst.com/1421352792786.html', '合肥助孕供卵网站,2026年合肥地区没有结婚证可不可以做试管？(没结婚证怎么做试管,有办法吗)']](https://www.fmngst.com/1421352792786.html)
+- [['https://www.cddyunw.com/301450345217.html', '2026医保目录更新：两款乳腺癌特药新增，生育辅助治疗报销指南']](https://www.cddyunw.com/301450345217.html)
+- [['https://www.chengyanghg.cn/331.html', '留学前必备英语实用技巧分享']](https://www.chengyanghg.cn/331.html)
+- [['https://www.ppmaas.com/guoneishiguanjigou/441.html', '国内包男孩包成功_正规代孕包性别,卵巢受损怀孕的概率低？3万能够成功吗？']](https://www.ppmaas.com/guoneishiguanjigou/441.html)
+- [['https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6003.html', '代生儿子收费-雪诺同黄体酮缓释凝胶排的残渣是什么颜色']](https://www.btwtjx.cn/wuhangongluanshiguanzhongxin/20251014/6003.html)
+- [['https://www.phetpalace.com/43.html', '在国内申请供卵的卵源是免费的吗？']](https://www.phetpalace.com/43.html)
 
 *本文整理自母婴健康资讯，仅供科普参考。*
